@@ -1,4 +1,5 @@
 # ac1
+
 Bens de consumo que eu gostaria de ter:
 
 Uma casa grande no Canadá
@@ -19,3 +20,5 @@ Montar a minha própria empresa
 reformar casa
 Meu sonho de Consumo é viver em um lugar frio, e que possua ruas retas.
 
+Sonho de consumo uma casa confortavel.
+viagens pelo Brasil e no mundo.
